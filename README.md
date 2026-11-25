@@ -1,1 +1,0 @@
-# baaghi-scholor-website
